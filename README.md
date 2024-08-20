@@ -1,4 +1,7 @@
-<h5 align=center> collect my pages
+<h5 align=center> hi im miro im about 20 people in one :3 
+  yahhh okay man! my socials v
+  [discord](https://discordid.netlify.app/?id=976522521249710080)     [roadblocks](https://www.roblox.com/users/2479067280/profile)     [xitter](https://www.x.com/yaozri)
+  
 ***
 
 <h5 align=center>
