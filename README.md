@@ -17,4 +17,5 @@
 <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/hehe"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/epic"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/roblox"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/gigantic"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/addict"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/robolove"/>
 
 <img src="https://file.garden/ZRasRcpOlUzNliBE/SPACEHEY/lilboy"/><img src="https://file.garden/ZRasRcpOlUzNliBE/SPACEHEY/zelly"><img src="https://file.garden/ZRasRcpOlUzNliBE/SPACEHEY/mneil">
+
 (pixel by <a href="https://x.com/acidbonk?s=09">acidbonk</a>!!!)
