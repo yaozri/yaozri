@@ -13,4 +13,4 @@
 <h5 align=center>
 
 
-<img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/hehe"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/epic"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/roblox"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/gigantic"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/addict"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/robolove"/>
+<img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/djpon3"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/celestia"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/nightmaremoon"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/luna"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/hehe"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/epic"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/roblox"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/homosex"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/addict"/><img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/robolove"/>
