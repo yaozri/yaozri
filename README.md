@@ -4,7 +4,7 @@
   <img src="https://file.garden/ZRasRcpOlUzNliBE/TOYHOUSE/blod">
   
   hi my name is miro<br>
-  20years old . they/he finnish (FI/ENG)<br>
+  20years old . they/he . finnish (FIN/ENG)<br>
   queer system . read my <a href="https://gaybian.straw.page">strawpage</a> for more info<br>
   dni if under 17 thx<br>
 
