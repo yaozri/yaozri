@@ -13,6 +13,6 @@
 
 <h5 align=center>
 
-<img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/djpon3"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/celestia"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/nightmaremoon"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/luna"/><br>
+<img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony1"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/djpon3"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/celestia"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/nightmaremoon"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/luna"/><br>
 <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/hehe"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/epic"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/roblox"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/homsoex"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/addict"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/robolove"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/bother"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/cd"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/onlinefriends"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/yaoip"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/ivlib"/>
 <hr>
