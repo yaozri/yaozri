@@ -2,13 +2,13 @@
   
   
   hi my name is miro<br>
-  20yrs old . they/he<br>
-  queer system. read my strawpage for more info<br>
+  20years old . they/he finnish (FI/ENG)<br>
+  queer system . read my <a href="https://gaybian.straw.page">strawpage</a> for more info<br>
   dni if under 17 thx<br>
 
 <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/deft"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/soad"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/korn"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/msi"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/nin"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/metallica"/><img src="https://file.garden/ZRasRcpOlUzNliBE/guh/undead"/> 
 
-<a href="gaybian.straw.page">STRAWPAGE</a>⠀⠀⠀⠀⠀<a href="https://discordid.netlify.app/?id=976522521249710080">DISCORD</a>⠀⠀⠀⠀⠀ <a href="https://www.x.com/yaozri">XITTER</a>
+<a href="https://discordid.netlify.app/?id=976522521249710080">DISCORD</a>⠀⠀⠀⠀⠀ <a href="https://www.x.com/yaozri">TWITTER</a>
 
 <h5 align=center>
 
