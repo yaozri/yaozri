@@ -1,22 +1,12 @@
-<hr>
-<h5 align=center>
-  
-  <img src="https://file.garden/ZRasRcpOlUzNliBE/TOYHOUSE/blod">
+<p align="center">
+hi! my name is miro <3<br>
+20years old . they/he . finnish<br>
+feel free to interact with me and come say hi!<br>
+please dni if youre under 17 years old<br>
+</p>
 
-  <h5 align=center>
-  
-  hi my name is miro<br>
-  20years old . they/he . finnish (FIN/ENG)<br>
-  queer system . read my <a href="https://gaybian.straw.page">strawpage</a> for more info<br>
-  dni if under 17 thx<br>
-
-
-<a href="https://discordid.netlify.app/?id=976522521249710080">DISCORD</a>⠀⠀⠀⠀⠀ <a href="https://www.x.com/yaozri">TWITTER</a>⠀⠀⠀⠀⠀ <a href="https://toyhou.se/yaozri">TOYHOUSE</a>
-
-<img src="https://file.garden/ZRasRcpOlUzNliBE/guh/deft"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/soad1"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/korn"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/msi"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/nin"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/metallica"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/undead"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/swipknoit"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/guh/aphex"/>
-
-<h5 align=center>
-
+<p align="center">
+<b><a href="https://discordid.netlify.app/?id=976522521249710080">DISCORD</a>⠀⠀⠀⠀⠀ <a href="https://gaybian.straw.page">STRAW PAGE</a>⠀⠀⠀⠀⠀ <a href="https://toyhou.se/yaozri">TOYHOUSE</a></b><br>
 <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony1"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/djpon3"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/celestia"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/nightmaremoon"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/luna"/><br>
-<img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/brony"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/hehe"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/epic"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/roblox"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/homsoex"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/addict"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/robolove"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/bother"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/cd"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/onlinefriends"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/yaoip"/> <img src="https://file.garden/ZRasRcpOlUzNliBE/stamps/ivlib"/>
-<hr>
+feel free to interact with me and come say hi!<br>
+</p>
